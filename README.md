@@ -1,1 +1,1 @@
-https://mineclinee.github.io/rsschool-cv/cs
+https://mineclinee.github.io/rsschool-cv/cv
