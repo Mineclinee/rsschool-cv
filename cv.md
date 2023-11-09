@@ -2,10 +2,10 @@
 
 ## Contact information:
 
-**Address:** Moscow, Russia
-**E-mail:** [vasily-minecline34@gmail.com](vasily-minecline34@gmail.com)
-**Telegram:** [Vasily Antoniuc](https://t.me/minecline)
-**LinkedIn:** [vasilii-antoniuc](https://www.linkedin.com/in/vasilii-antoniuc/)
+* **Address:** Moscow, Russia
+* **E-mail:** [vasily-minecline34@gmail.com](vasily-minecline34@gmail.com)
+* **Telegram:** [Vasily Antoniuc](https://t.me/minecline)
+* **LinkedIn:** [vasilii-antoniuc](https://www.linkedin.com/in/vasilii-antoniuc/)
 
 # Summary
 
